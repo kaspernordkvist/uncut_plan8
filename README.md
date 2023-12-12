@@ -8,6 +8,8 @@
 
 ![Uncut Plan8 font preview](/misc/readme/preview_1.png)
 
+![Uncut Plan8 font preview](/misc/readme/preview_2.png)
+
 ------
 
 ## Follow along
